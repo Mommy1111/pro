@@ -1,2 +1,2 @@
-# pro
-ss
+# troll script
+troll your friends or idk
